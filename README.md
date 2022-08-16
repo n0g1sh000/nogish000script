@@ -1,0 +1,1 @@
+# nogish000script
